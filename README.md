@@ -14,4 +14,4 @@
 
 إذا كنت بحاجة إلى مساعدة في مشروع أو لدي أي استفسار، فلا تتردد في التواصل معي.
 
-يمكنك الاتصال بي عبر البريد الإلكتروني على example@email.com أو عبر حسابي على [LinkedIn](https://www.linkedin.com/in/yourprofile) للمزيد من المعلومات.
+يمكنك الاتصال بي عبر البريد الإلكتروني على wael.derwish71@gmail.com أو عبر حسابي عل[linkedin](https://www.linkedin.com/me?trk=p_mwlite_feed_updates-secondary_nav)
